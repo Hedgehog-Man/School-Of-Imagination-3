@@ -1,1 +1,1 @@
-# School-Of-Imagination-3
+# SHOOL OF IMAGINATION
